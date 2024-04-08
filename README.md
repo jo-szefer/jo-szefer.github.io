@@ -1,1 +1,0 @@
-# jo-szefer.github.io
